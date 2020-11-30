@@ -1,1 +1,7 @@
-# Creative-destruction-hack-aimbot
+# [Script] Creative destruction hack aimbot iOS android PC
+
+With our Creative Destruction MOD APK, you are certain to get unlimited gold on your own account. You can open as numerous special chests as you want. You will definitely have plenty of fun opening so many chests. Creative Destruction hack is basically a platform that provides the players a landscape where everything is destructible. Creative Destruction is just a sandbox mobile survival game. It offers to users the fun of creativity of building and destruction. As a player, you will soon be parachuted in to a 4*4 km map with thirteen various fascinating lands. You'll start with only a destructor in your hand. You need to survive a death-match that involves no more than 100 different players.
+
+In the event that you looking for an out-of-the-box mobile gaming experience, here is the game for you.The game gives you a distinctive workshop system using which you can destroy or create the battlefields. The game also has an incentive for unlocking the TPS or the FPS mode. As you progress so you obtain proper ammunition to outgun along with outwit the enemies. To incorporate excitement and thrill to the entire premise the developers have added a countdown clock. You are racing against time and energy to prevent the snowstorm, bullets from the enemies, and eventually death. As a player, you can either choose to fight alone or team up with other players. You can do that to complete your targets.
+
+CLICK HERE >>>>>> https://drezgaming.com/creative-destruction/
